@@ -6,23 +6,23 @@ Modo de preparo : **1h**
    
    Em uma panela, misture o frango, o alho, a maionese, o sal e a pimenta.
 
-3. 2
+2. 2
    
    Em uma frigideira grande, derreta a manteiga e doure a cebola.
 
-4. 3
+3. 3
    
    Junte o frango temperado até que esteja dourado.
 
-5. 4
+4. 4
    
    Adicione os cogumelos, o ketchup e a mostarda.
 
-6. 5
+5. 5
    
    Incorpore [o creme de leite](https://www.tudogostoso.com.br/noticias/creme-de-leite-fresco-caseiro-de-caixinha-e-mais-a5193.htm) e retire do fogo antes de ferver.
 
-7. 6
+6. 6
    
    Sirva com arroz branco e batata palha.
 
@@ -49,3 +49,5 @@ Que tal preparar muitas outras deliciosas [receitas com frango](https://www.tud
 [Como temperar coração de frango para assar:](https://blog.tudogostoso.com.br/dicas-de-cozinha/como-temperar-coracao-de-frango-para-assar/) veja nossas dicas
 
 Chega de [peito de frango seco](https://blog.tudogostoso.com.br/dicas-de-cozinha/chega-de-peito-de-frango-seco-descubra-os-segredos-para-uma-carne-muito-suculenta/): descubra os segredos para uma carne muito suculenta
+
+ola que tal!
